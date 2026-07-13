@@ -1,3 +1,11 @@
+VINOD KARUNAKARAN
+Product Manager — Payments & Fintech
+Bangalore, India 
+| +91-9008675595 
+| Vinod.Karan@Outlook.com 
+|  linkedin.com/in/vinodkarunakaran
+
+
 💳 Product Manager | Fintech & Payments | Driving Scalable, Customer-First Payment Solutions
 
 Product Manager with 10 years of experience in payments and digital banking, building mobile and web products used by banks, merchants, and consumers.
